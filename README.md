@@ -29,6 +29,7 @@ Porque no tenemos un Steve Jobs en Latinoamérica -Cultura social y legal que no
 
 ## El mundo que se viene
 
+#CAPITULO 2: GASTÓN ACURIO: EL CHEF QUE REGALA SUS RECETAS 
 El cocinero que no divulga sus recetas, desaparece” Una de las claves de los grandes innovadores empresariales, tecnológicos y científicos para tener éxito ha sido, la colaboración con sus rivales, más que la competencia. 
 
 
